@@ -1,1 +1,1 @@
-my 1st rdme oro
+my 1st rdme oromo
